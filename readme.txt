@@ -1,0 +1,1 @@
+Zadania z zajęć mam w innym repozytrium.
